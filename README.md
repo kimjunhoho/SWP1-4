@@ -1,2 +1,2 @@
-20175184 Junho Kim
+Junho Kim 20175184
 Kookmin Univ. SW
